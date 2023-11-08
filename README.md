@@ -2,7 +2,7 @@
 
 ## Ромашкин Кирилл Викторович
 
-![] (https://www.lfl.ru/photo/persons/source/196577.jpg?w=100&q=80)
+![] (https://www.lfl.ru/photo/persons/source/196577.jpg)
 
 19.03.1992
 
